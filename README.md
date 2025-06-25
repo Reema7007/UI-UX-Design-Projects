@@ -29,3 +29,24 @@
 
 ![Fashion Mantra img](https://github.com/user-attachments/assets/b6d56f68-8098-41c2-85e0-d68433c21c14)
 
+08 Food website
+
+![foodkat](https://github.com/user-attachments/assets/9f10e0ee-d8c8-47c2-9c0c-46b9d4793a79)
+
+09 Online Education website
+
+![educational website](https://github.com/user-attachments/assets/907fd88a-139d-45f2-8468-35a7c7ee769c)
+
+10 Online Shopping Mobile App
+
+![Shopping App](https://github.com/user-attachments/assets/202cd4f6-c8c9-469d-ab23-cf75e59a05fd)
+
+11 Virtual Reality Movie App
+![vr movie](https://github.com/user-attachments/assets/2719f7dd-b0bb-45d7-8950-f19c05bc15d6)
+
+12 Virtual Reality Gaming website
+
+![vr game](https://github.com/user-attachments/assets/09bcc680-4186-4e70-b5af-bb3c90dac531)
+
+
+
