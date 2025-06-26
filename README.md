@@ -51,5 +51,15 @@ View full website on behance link: https://www.behance.net/gallery/222500487/Foo
 
 ![vr game](https://github.com/user-attachments/assets/09bcc680-4186-4e70-b5af-bb3c90dac531)
 
+13 Donuts Animated website
+view on behance: https://www.behance.net/gallery/228271033/Donuts-Animated-UIUX-website
+
+![Donuts](https://github.com/user-attachments/assets/07e53551-9fb8-4517-9d0e-ae6f89a7b7f1)
+
+14 Ice cream bar Animated website
+view on behance: https://www.behance.net/gallery/228272207/Ice-Cream-Bar-Animated-Design
+
+![ICE CREAM](https://github.com/user-attachments/assets/237930b3-3a70-4a00-975a-0a9f7adbf9c1)
+![ICE CREAM](https://github.com/user-attachments/assets/237930b3-3a70-4a00-975a-0a9f7adbf9c1)
 
 
