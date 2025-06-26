@@ -60,6 +60,5 @@ view on behance: https://www.behance.net/gallery/228271033/Donuts-Animated-UIUX-
 view on behance: https://www.behance.net/gallery/228272207/Ice-Cream-Bar-Animated-Design
 
 ![ICE CREAM](https://github.com/user-attachments/assets/237930b3-3a70-4a00-975a-0a9f7adbf9c1)
-![ICE CREAM](https://github.com/user-attachments/assets/237930b3-3a70-4a00-975a-0a9f7adbf9c1)
 
 
