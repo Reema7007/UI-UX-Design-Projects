@@ -65,5 +65,7 @@ view on behance: https://www.behance.net/gallery/228272207/Ice-Cream-Bar-Animate
 
 ![mental health](https://github.com/user-attachments/assets/eec07fee-8957-42e4-b906-6c70326f0cb6)
 
+16 Online Education Platform
+view on behance: https://www.behance.net/gallery/228601349/Online-Education-Platform
 
-
+![Zidio frontpg](https://github.com/user-attachments/assets/d6a5dda1-1125-4f82-b078-8fda6513d7ae)
